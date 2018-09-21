@@ -1,1 +1,1 @@
-# GamerEd150.github.io
+# HistoryOfBGN.github.io
